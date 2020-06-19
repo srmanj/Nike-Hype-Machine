@@ -68,7 +68,7 @@ So, If you’re someone who’s looking to sell an Off-White sneaker, you stand 
 
 If your product belongs to the High Heat category, you are better off to hold on to your product until week 20. If not, you are likely to see the most profit for your product pre-release.
 
-[https://miro.medium.com/max/750/0*pJqVW1e_w8OlmpLj](https://miro.medium.com/max/750/0*pJqVW1e_w8OlmpLj)
+[https://miro.medium.com/max/750/0*pJqVW1e_w8OlmpLj.png](https://miro.medium.com/max/750/0*pJqVW1e_w8OlmpLj.png)
 
 Air Jordan 1’s Off-White Retro High Chicago
 
